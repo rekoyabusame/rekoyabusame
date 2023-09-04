@@ -1,7 +1,9 @@
 ❝ ;  welcome ❞
 
    ❝ ;  hiya!! you can call me reko. nicknames such as punk lady or sort are acceptable unless offensive ❞
+   
    ❝ ; my pronouns are she/they, and i'm a lesbian gal ❞
+   
    > ❝ ; note: i'm not looking for nor do i want non-platonic relationships!! kin-dating as a joke is fine though. ❞
 
    ❝ ; i'm a HUGE punk rock fan!! i also do like other styles such as grundge, alt/indie and visual kei, but most of my favorite artists make punk rock music. some of them are: ❞
