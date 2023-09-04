@@ -24,8 +24,6 @@
     ❝ ; pokémon ❞
     ❝ ; jojo's bizarre adventure ❞
 
- <div class="tenor-gif-embed" data-postid="18929472" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/reko-reko-yabusame-yttd-bongo-cat-bongos-gif-18929472">Reko Reko Yabusame GIF</a>from <a href="https://tenor.com/search/reko-gifs">Reko GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
-
    ❝ ; dni: ❞
     ❝ ; any type of -philes ❞
     ❝ ; homophobic, racist, xenophobic people ❞
@@ -38,12 +36,3 @@
    ❝ ; nao, alice kinnies (please i'm begging) ❞
 
    ❝ ; wanna know more stuff? feel free to interact <3 ❞
-
-
-
-
-
-
-
-
- 
